@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1hTJNQLVFeDEp3h1iCgwmM-XBwHQXU12c/view?usp=drive_link](https://drive.google.com/file/d/1hTJNQLVFeDEp3h1iCgwmM-XBwHQXU12c/view?usp=drive_link)
 
-- ⚡
+
 -  **I am serious about my passionate work .**
 
 <h3 align="left">Connect with me:</h3>
